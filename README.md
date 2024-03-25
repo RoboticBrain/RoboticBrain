@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding and problem solving.
 - 🌱 I’m currently learning Different things
 - 💞️ I’m looking to collaborate on Life changing projects.
-- 📫 How to reach me Email: mazharahmed0118@gmail.com
+- 📫 How to reach me mazharahmed0118@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... We are living in software simulation 🤐
 
